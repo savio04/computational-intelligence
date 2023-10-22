@@ -1,3 +1,3 @@
 # Inteligência Computacional
 
-🚧 Em contrução... 🚧
+🚧 Em construção... 🚧
